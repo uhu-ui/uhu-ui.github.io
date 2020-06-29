@@ -6,3 +6,5 @@ Das Tier von Trude. Sehr wuschelig.
 * sagt immer "Da wo ich herkomme"
 * mag saure Gurken
 * grau
+
+> Tschul-di-gung. Kapok!
