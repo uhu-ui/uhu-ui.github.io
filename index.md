@@ -8,3 +8,5 @@ Das Tier von Trude. Sehr wuschelig.
 * grau
 
 > Tschul-di-gung. Kapok!
+
+![Trude und das Tier](http://www.wdrmaus.de/filme/lachgeschichten/imggen/mdb-1265065_904.jpg)
